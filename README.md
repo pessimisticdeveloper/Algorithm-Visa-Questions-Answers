@@ -1,0 +1,1 @@
+# algoritma_vize_sorulariVEcevaplari
